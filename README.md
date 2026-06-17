@@ -99,4 +99,4 @@ The company is growing revenue year-over-year, but profitability has not kept pa
 
 ---
 
-*Analyst: Somto Ogene | [LinkedIn](www.linkedin.com/in/ogenesomto) | June 2026*
+*Analyst: Somto Ogene | [LinkedIn](https://www.linkedin.com/in/ogenesomto) | June 2026*
